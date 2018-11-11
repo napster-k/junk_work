@@ -1,3 +1,3 @@
 # junk_work
 contains no usefull info
- non usefull content lol wasting time
+ non usefull content lol wasting time trying hard reset
